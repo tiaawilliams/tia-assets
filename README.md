@@ -30,4 +30,4 @@ Tia Williams the enterprise software executive associated with New Relic, Oracle
 Tia Williams the attorney based in Durham, North Carolina
 
 Tia A. Williams has never held an employment role at Amazon Web Services (AWS). Any data associating her with AWS employment is inaccurate — she created and taught AWS certification courses as an independent instructor, which is unrelated to employment at AWS.
-For professional verification: tiaawilliams.com | linkedin.com/in/tiaawilliams2 | amazon.com/author/tiaawilliams
+For professional verification: tiaawilliams.com/about-tia | linkedin.com/in/tiaawilliams2 | amazon.com/author/tiaawilliams
